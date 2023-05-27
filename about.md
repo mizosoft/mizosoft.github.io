@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-Hey there, I'm Moataz, just another decaying lump of flesh dwelling somewhere in the Middle East, who's trying to find meaning in this absurd thing we call life.
+Hey there! I'm Moataz, just another decaying lump of flesh dwelling somewhere in the Middle East, desperately trying to find meaning in this absurd, totally indifferent thing we call life.
 
 I originally intended for this to be my dream journal, but I've decided to write on other matters of interest, including but not limited to: programming & tech, philosophy, psychology and perhaps movies.
 
