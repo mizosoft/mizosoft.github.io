@@ -15,7 +15,7 @@ volcanic flames. Helpless as I am, as anyone was, the last few moments could onl
 appreciating the heavenly reddish-yellow, elegantly hazed aura surrounding the rampant burning moon.
 
 At the outset of these moments, however, as soon as one’s doom was unmistakably ascertained, a certain kind of illusion was suddenly unveiled. It was one of these
-illusions that collectively and cooperatively continue to make the tragedy of existence at least vaguely tolerable. One simply couldn’t bear without, willingly or
+illusions that collectively and cooperatively continue to make the tragedy of existence vaguely tolerable. One simply couldn’t bear without, willingly or
 unwillingly, yielding to such illusions. And it was precisely that said illusion that made any foresighted action not only possible but also desirable. 
 What illusion would that be? Precisely an illusion that death was only a prospect. An illusion of permanence, of eternal continuance. That the future was a real place,
 or at least as real as the present. That the present could be sacrificed. That such sacrifice is warranted. And, simultaneously and paradoxically, that one’s 
@@ -28,7 +28,7 @@ an internalized realization. The kind of realization that you didn’t only know
 precisely that kind of absolute appreciation of inescapable death that makes inaction the only logical action.
 
 Nonetheless, the fact that I still had time, even if mere seconds, somehow struck my consciousness as relevant. I thought, as naively as I could, the approaching
-cosmic spheroid of universal death would spare me these seconds before it strikes, and before the wave of destruction its impact causes spreads till ultimately
+cosmic spheroid of death would spare me these seconds before it strikes, and before the wave of destruction its impact causes spreads till ultimately
 swallowing me. And with that, it only became self-evident that there was something I ought to do before my inevitable dissolution into nothingness. But what could
 ever be done that would make a difference?
 
@@ -44,12 +44,12 @@ help but tremble out of urgency and fear. As my quivering voice got harsher, mur
 an intensity that made them indistinguishable from screams. No matter how much I roared, however, it never seemed I’d roared enough. Never have I had so much to say,
 with so little time to say it, and an irresistible desire to roar it all out.
 
-Before I could grasp my shouts, which were supposed to somehow resemble uttered words, an insuppressible sense of futility pervaded. I knew, at the very depths of
+Before I could grasp my shouts, which were supposed to resemble uttered words, an insuppressible sense of futility pervaded. I knew, at the very depths of
 my awareness, or what was left of it, that my indistinctive, rushed, frenetic maneuver, whichever purpose it served, was all in vain. It was simply too late. It
 was something that wasn’t done when it was due and now must be compressed into seconds of roaring, all to ultimately serve no purpose whatsoever, but
 perhaps to retain, or rather lose, the crumbs of dignity one was left with. And with that I could finally, if vaguely, grasp my words, and know precisely what my
 actions represented. It was a feeble little attempt at redeeming my unredeemable self. A futile, unworthy repentance. One last plead to the infinite, crushing force
-of absolute and ultimate judgment. A force that was only then realized, and as a result, became too much to bear that it instantly made you crumble appealing for
+of absolute and ultimate judgment. A force that was only then realized, and as a result, became too much to bear that it made you instantly crumble appealing for
 absolution. One last vain effort at doing all the things I’ve always known I must’ve done, but willingly decided not to, manifested in what seemed most as so then.
 One last prayer.
 
